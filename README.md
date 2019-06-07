@@ -1,2 +1,2 @@
 # Hello-New-World
-God your son is awake now
+God your son is awaked now
